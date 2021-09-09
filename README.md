@@ -12,7 +12,7 @@
 
 ### Sou da turma 2190
 
-#### Tenho aula com a professora: Mariane Joquim Melo
+#### Tenho aula com a professora: Mariane Joaquim Melo
  
 ##### Sobre mim:
 
